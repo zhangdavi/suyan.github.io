@@ -8,9 +8,9 @@ keywords: 长安,老家，雪，2018
 
 
 
-![校园雪景](https://github.com/zhangdavi/zhangdavi.github.io/blob/master/photo/20180104160701.jpg)
+![校园雪景](https://upload-images.jianshu.io/upload_images/1243509-baf81742747db38a.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/700)
 
-![城墙雪景](https://github.com/zhangdavi/zhangdavi.github.io/blob/master/photo/20180104163904.jpg)
+![城墙雪景](https://upload-images.jianshu.io/upload_images/1243509-f0f9365a1da647a0.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/700)
 
 可是我不能回去，我被绑定在南方的城市，我必须上班，挣钱养家糊口。
 
