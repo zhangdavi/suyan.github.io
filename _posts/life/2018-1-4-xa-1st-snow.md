@@ -14,3 +14,10 @@ keywords: 长安,老家，雪，2018
 
 可是我不能回去，我被绑定在南方的城市，我必须上班，挣钱养家糊口。
 
+新增几张图，遥思故乡，感谢故乡朋友拍这么漂亮的照片
+
+![钟楼](https://upload-images.jianshu.io/upload_images/1243509-933fdbefed354389.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/700)
+
+![大雁塔](https://upload-images.jianshu.io/upload_images/1243509-92e436d7446eabef.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/700)
+
+![小寨](https://upload-images.jianshu.io/upload_images/1243509-1c1dc59579009dd9.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/700)
